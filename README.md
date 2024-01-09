@@ -5,7 +5,7 @@
 - 📫 sahilsinghapsb@gmail.com- 
 - Discord Server Designer specialized in making servers
 - 💙 Love to contribute in teamworks.
-- Active Timing -After - (3PM) 
+- Active Timing -After - (3PM) IST - INDIAN STANDART TIME
 
 <!---
 OnlySahil1/OnlySahil1 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
